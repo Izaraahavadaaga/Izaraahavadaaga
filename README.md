@@ -1,0 +1,7 @@
+ Hi, I’m @Izaraahavadaaga
+ I’m interested in aprender y participar de este mundo virtual que me es tan ajeno y al mismo tiempo maravilloso. Me llega información al respecto de que costruiremos una nueva forma de vincularnos y de ser que tiene que ver con todo est tipo de conexiones entre los seres de este mundo
+ I’m currently learning, estoy recordando Kabbalah e interrelacionando el aprendizaje de otras disciplinas que forman parte del mundo actual y pasado y que hoy están despertando nuevamente    
+ I’m looking to collaborate on con toda la información que reciba, y de la mano de eso muchas ideas y conocimientos que me bajan como información y hace un tiempo vengo viendo que luego de recibirlas, suceden!!! por eso ya estoy en condiciones de bajarla a quienes quiern recivirla y aprender a recibirlas, porque todos somos capaces de conectar directamente con la fuente pero si aún no te sucede me pongo a tu servicio creando para ti UFt que podrás tomar de esta nube ayudandote a manifestar muchas cosas que entenderás que te llegarán y son para ti si puedes materializarlas porque aparecen lor recursos facilmnte para podeer lograrlo.
+ How to reach me ...bertani_mafe@yahoo.com.ar
+Lo importante para crear y poder conectar con toda la información del universo.... y éste tipo de red, comunicación,interrelación que se da a traves de estas plataformas es una replica de como funciona todo, así como la MATRIX... LA CLAVE más allá de plantear un problema ES HACER UNA PREGUNTA
+
